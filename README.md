@@ -22,4 +22,5 @@ Rigging · Weight painting · Procedural & keyframe animation · PBR texturing
 
 ---
 
-*Stay-at-home dad. Part-time server. I play Adopt Me with my family and got curious about how it works.*
+*Stay-at-home dad. Part-time server. I play Adopt Me with my family and got curious about how it works.*  
+*Roblox: [GrandMastaShake](https://www.roblox.com/search/users?keyword=GrandMastaShake)*
